@@ -1,2 +1,4 @@
 # mine
-first experience
+hi. 
+we gotta survive.
+
